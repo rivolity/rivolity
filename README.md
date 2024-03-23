@@ -8,4 +8,3 @@ Disbelieve your heart . . . :crossed_swords:
     ╚═╝     ╚═╝  ╚═╝╚══════╝╚══════╝╚══════╝   ╚═╝   ╚═╝╚═╝  ╚═══╝╚══════╝    ╚═╝    ╚═╝    ╚═╝    ╚═╝
 
 Always in the heart . . . :heart::black_heart::white_heart::green_heart:
-![catcher](https://github.com/rivolity/rivolity/assets/39197760/9b05649e-c4ef-429b-b268-818142a0eb4b)
