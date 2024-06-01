@@ -1,4 +1,4 @@
-Disbelieve your heart . . . :crossed_swords:
+:crossed_swords: My Zanpakutō removes obsolete/unnecessary branches. The Bankai release impacts pipelines . . .
 
     ██████╗  █████╗ ██╗     ███████╗███████╗████████╗██╗███╗   ██╗███████╗                            
     ██╔══██╗██╔══██╗██║     ██╔════╝██╔════╝╚══██╔══╝██║████╗  ██║██╔════╝                            
