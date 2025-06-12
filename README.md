@@ -7,4 +7,4 @@ Just as code is written with purpose, so too is the fabric of reality. Whether o
 
 To seek knowledge is to seek truth, and truth, in its deepest form, has always pointed beyond the material. The question is not whether there is meaning, but whether we choose to recognize it.
 
-*Always in the heart* 🇵🇸
+<img src="https://cdn.pixabay.com/photo/2023/11/13/01/41/palestine-8384375_1280.png" alt="Always in the heart" width="150">
